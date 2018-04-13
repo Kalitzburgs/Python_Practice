@@ -51,3 +51,7 @@ Andres se muda adelante y es un egoista desconsiderado que no deja que el viejo 
 Andres
 Male pidio arreglar el departamento de adelante y se arreglo
 Male pidio arreglar el departamento del fondo y se arreglo
+
+
+#
+https://imgur.com/gallery/iM0Bn
