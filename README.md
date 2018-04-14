@@ -1,9 +1,5 @@
-#Agile
-Proximo lunes hay charlas sobre Kanban en la cafeteria
-Sprints
-BA Agile COP
-Scrum
-Kanban
+# Juego para perro
+https://imgur.com/gallery/XV9xJ
 
 
 # Mix de cereales
