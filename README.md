@@ -1,6 +1,9 @@
 # Juego para perro
 https://imgur.com/gallery/XV9xJ
 
+# Infinity Wars - Ver en orden antes
+https://imgur.com/gallery/B3mrj
+
 
 # Mix de cereales
 Avellanas
